@@ -1,1 +1,1 @@
-https://GITHUB-Donich1987.github.io/rsschool-cv/cv
+https://Donich1987.github.io/rsschool-cv/cv
